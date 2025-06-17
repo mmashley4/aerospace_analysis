@@ -1,0 +1,1 @@
+This message pertains to the competitive analysis between BOEING and LOCKHEED MARTIN
